@@ -1,1 +1,2 @@
-[MIA.pdf](https://github.com/user-attachments/files/19574862/MIA.pdf)
+![MIA](https://github.com/user-attachments/assets/60995bff-34ae-435b-a5ed-184d2e1c164c)
+
